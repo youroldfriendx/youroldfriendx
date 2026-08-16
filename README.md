@@ -6,7 +6,7 @@
 
 <a href="https://youroldfriendx.straw.page/">,STRAWPAGE .
 
-no special or ata for this gsnoereeeeeeeesssssss
+no special ata for this gsnoereeeeeeeesssssss
 
 I AM GOD as an old chud laughs raspily adn fucking dies bc im so fucking old
 
